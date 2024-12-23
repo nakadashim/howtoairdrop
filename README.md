@@ -1,0 +1,1 @@
+"This is just a thread explaining how to participate in an airdrop, not a guaranteed way to instantly earn $10,000. Any mistakes or negligence that lead to losses while participating in an airdrop are your own responsibility."
